@@ -9,6 +9,6 @@
 - 🤔 I’m looking for help with learning math and programming 
 - 💬 Ask me about some my english skills, my guitar skills and my willpower
 - 📫 How to reach me: My Linkedin link is www.linkedin.com/in/andré-luiz-duarte-9bb37a336
-- 😄 Pronouns: ... he/him
-- ⚡ Fun fact: ...
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: I Like to be funny 
 -->
