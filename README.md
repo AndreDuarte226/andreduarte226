@@ -1,4 +1,4 @@
-## Hi 👋 I´am André Luiz Duarte, Student of computer science at Unifil. At the moment I live at Paraná, Brazil
+## Hi 👋 I´am André Luiz Duarte, Student of computer science at Unifil. English speaker. At the moment I live at Paraná, Brazil.
 
 **AndreDuarte226/andreduarte226** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
